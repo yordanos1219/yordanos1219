@@ -25,8 +25,7 @@
 
 ## 📫 Let's Connect!
 
-- Email: [yordanostekalign@example.com](mailto:yordanostekalign@example.com)
-- LinkedIn: [Yordanos Tekalign](https://www.linkedin.com/in/yordanostekalign) *(optional: if you have one)*
+- Email: yordina2127@gmail.com
 
 ---
 
